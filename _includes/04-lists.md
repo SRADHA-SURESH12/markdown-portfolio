@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1.Spiral notebooks
+2.Fancy pens
+3.Mandalas
